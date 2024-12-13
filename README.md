@@ -26,7 +26,7 @@ Todo o processo uniu criatividade e inovação tecnológica para criar um conte�
 
 A combinação dessas ferramentas de inteligência artificial resultou em um podcast de alta qualidade, com uma narrativa simplificada e cheia de informações validas e precisas.
 
-[https://share.descript.com/view/0QZMnadcmrQ]
+[[https://share.descript.com/view/0QZMnadcmrQ]](https://share.descript.com/view/xAd5SqgsZOH)
 
 ## 💭 Reflexão
 O projeto evidencia de maneira clara como a inteligência artificial está transformando a produção de conteúdo. 
